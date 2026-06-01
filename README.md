@@ -82,9 +82,9 @@ This system can be adapted for:
 
 Built by **Divyanshu** — AI Automation Engineer & Data Analyst
 
-- 🔗 [Upwork Profile](your-upwork-link)
-- 💼 [LinkedIn](your-linkedin-link)
-- 📧 divyanshujio964@gmail.com
+- 🔗 [Upwork Profile](https://www.upwork.com/freelancers/~01201869f94c5013ea?mp_source=share)
+- 💼 [LinkedIn](https://www.linkedin.com/in/divyanshu964/)
+- 📧 divyanshuraghuwanshi964@gmail.com
 
 ---
 
